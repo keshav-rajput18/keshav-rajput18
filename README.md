@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @keshav-rajput18
-- 👀 I’m interested in leaarning
+- 👀 I’m interested in learning
 - 🌱 I’m currently learning JAVA
 - 💞️ I’m looking to collaborate on new ideas and projects
 - 📫 How to reach me ... My Insta: keshav_rajput18
